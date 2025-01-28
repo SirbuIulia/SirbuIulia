@@ -6,7 +6,7 @@
   
 - 💞️ I’m looking to collaborate on innovative digital projects, web applications, or e-business platforms.
   
-- 📫 How to reach me ~ email adress: sirbuiulia05@gmail.com
+- 📫 How to reach me ~ email adress: sirbuiulia05@gmail.com,
                       ~ linkedin profile: www.linkedin.com/in/iulia-sîrbu
 
 <!---
